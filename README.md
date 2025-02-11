@@ -1,4 +1,5 @@
-![Header](https://raw.githubusercontent.com/gist/jimmerioles/1970dffe28a48e0980f00492c3c814b7/raw/effce7e762152b3fa69f3053d29d926df4274888/brand-header-3waves-title.svg)
+![Header](https://raw.githubusercontent.com/gist/jimmerioles/83f3eb44cec829dddb79f460f49e6284/raw/4bfd1d8f8495be1c14cec23d2217412607a388dc/brand-header-3waves-title-28px.svg)
+
 
 ## Hi there 👋
 

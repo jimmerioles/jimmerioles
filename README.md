@@ -3,7 +3,7 @@
 
 ### If you are looking for a "sign", this is it ☝️😊❤️
 
-If you have a project that I can help with or looking to hire an excellent remote addition to your team, please drop me a message and let me help you reach your goals! 🤙😊🚀
+If you have a project that I can help with or looking to hire an excellent remote addition to your team, please drop me a message and let me help you reach your goals! 🤙😊🎯
 
 
 <!--

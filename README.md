@@ -3,7 +3,7 @@
 
 ### Hi there! 👋😊 If you are looking for a "sign", this is it ☝️😊❤️
 
-If you are looking to hire an excellent remote addition to your team or have a project that need help with, please drop me a message and let me help you reach your goals! 🤙😊🎯
+If you have a project that need help with or looking to hire an excellent remote addition to your team, please drop me a message and let me help you reach your goals! 🤙😊🎯
 
 <!--
 **jimmerioles/jimmerioles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,4 +1,4 @@
-![diagram](https://raw.githubusercontent.com/jimmerioles/jimmerioles-banner/refs/heads/main/brand-header-3waves-title-28px.svg?token=GHSAT0AAAAAADXJJJQGEGFMAYCBHN6CC2IK2QQUQSA)
+![diagram](https://gist.githubusercontent.com/jimmerioles/082ff94b636495edf5f2d5c0854c72a6/raw/4316e9a9d6cdb03c61c52a4f6adda82129116263/brand-header-3waves-title-28px.svg)
 
 ## If you are looking for a "sign", this is it ☝️😊❤️
 Hi there! 👋😊 

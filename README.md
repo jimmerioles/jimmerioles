@@ -6,4 +6,4 @@ Hi there! 👋😊
 
 Looking to hire an excellent remote addition to your team or have a project that needs help with?
 
-Please drop me a message and let me help you reach your goals! 🤙😊🎯
+Please drop me a message and let me help you reach your goals! 😊👍🎯
